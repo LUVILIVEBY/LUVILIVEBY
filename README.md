@@ -1,0 +1,2 @@
+- I KNOW NOTHING ABOUT CODE!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+- HUMAN/FEMALE/CHINESE/STUDENT
